@@ -1,2 +1,3 @@
 # LSPD-Panel
-LSPD Panel Website
+Panel LSPD Roleplay complet 
+Discord Natann#6666
